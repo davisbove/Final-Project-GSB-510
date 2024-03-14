@@ -2,3 +2,9 @@
 
 
 Davis Bove, Christopher Abbes, Megan Gibson
+
+
+Infographic contains the single page graphic
+
+Final presentation PPT is the final 
+
